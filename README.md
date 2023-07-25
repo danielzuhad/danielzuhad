@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **danielzuhad@gmail.com**
 
-- ⚡ Fun fact **i like dark jokes hehe **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
